@@ -1,4 +1,4 @@
-# 
+# GIMP for PC | GIMP for Windows premium Template: batch-processing & 3D-editing offers the most advanced GIMP for PC | GIMP for Windows template, with batch-processing and
 
 
 
